@@ -109,4 +109,3 @@
 
 Check out more of my work and ongoing projects on [GitHub](https://github.com/MaxxwellW).
 
-https://imgur.com/N4eg2hG
