@@ -47,9 +47,6 @@
 *Lowe's — Stillwater, OK | May 2020 – Nov 2020*  
 - Received Lowe’s Service Star Award for exceptional teamwork and reliability  
 
-**Crew Member**  
-*Raising Cane’s — Stillwater, OK | Jan 2020 – May 2020*  
-- Provided consistent, high-quality customer service in a fast-paced food environment  
 
 **Library Ambassador**  
 *Edmon Low Library, Oklahoma State University — Mar 2018 – Jun 2019*  
