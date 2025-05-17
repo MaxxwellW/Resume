@@ -9,34 +9,6 @@
 
 ## 🧑‍💼 Professional Experience
 
-### Freelance & Contract Work
-
-**Credentialed Medical Marijuana Business Employee**  
-*Oklahoma Medical Marijuana Authority (OMMA) — Apr 2024 – Present*  
-- OMMA-credentialed in lab testing and cannabis sales  
-- Experienced in METRC compliance, potency/contaminant analysis, and patient-focused distribution  
-- Passed OMMA audit with zero issues; ensured full regulatory compliance  
-
-**Logistics Specialist**  
-*Cadillac Cannabis LLC — Apr 2024 – Present*  
-- Created invoices, processed raw cannabis inside lab, and delivered to rural/urban dispensaries  
-
-**Sales Representative**  
-*Gold Rush Premium Extracts / C3E Management LLC — Apr 2024 – Present*  
-- Represented lab distributing products statewide to thousands of Oklahoma patients  
-
-**UberEATS Driver**  
-*Uber — Oklahoma, OK | Apr 2021 – Present*  
-- Delivered meals and essentials across Oklahoma with safety and professionalism  
-
-**Cutco Sales Representative**  
-*Vector Marketing — Stillwater, OK | Apr 2018 – Jun 2019*  
-- Top regional sales rep for high-quality kitchen cutlery
-
----
-
-### Other Work Experience
-
 **Amazon Associate**  
 *Amazon Fulfillment (OKC1) — Oklahoma City, OK | Nov 2020 – Present*  
 - Served as Amnesty Backup Quarterback for safety, logistics, and real-time robotics monitoring  
@@ -54,7 +26,32 @@
 
 **Student Security Assistant**  
 *Edmon Low Library — Dec 2017 – Jun 2019*  
-- Conducted security patrols, maintained peace, and held responsibility for master keys  
+- Conducted security patrols, maintained peace, and held responsibility for master keys
+
+
+### Freelance & Contract Work
+
+*Credentialed Compliance and Quality Assurance Specialist
+Oklahoma Regulatory Authority — Apr 2024 – Present
+• Credentialed professional in regulated product testing and retail operations
+• Experienced in inventory tracking systems (e.g., METRC), quality analysis, and client-focused distribution
+• Successfully passed state compliance audit with zero findings; maintained full adherence to regulatory standards
+
+**Logistics Specialist**  
+*Cadillac Cannabis LLC — Apr 2024 – Present*  
+- Created invoices, processed raw cannabis inside lab, and delivered to rural/urban dispensaries  
+
+**Sales Representative**  
+*Gold Rush Premium Extracts / C3E Management LLC — Apr 2024 – Present*  
+- Represented lab distributing products statewide to thousands of Oklahoma patients  
+
+**UberEATS Driver**  
+*Uber — Oklahoma, OK | Apr 2021 – Present*  
+- Delivered meals and essentials across Oklahoma with safety and professionalism  
+
+**Cutco Sales Representative**  
+*Vector Marketing — Stillwater, OK | Apr 2018 – Jun 2019*  
+- Top regional sales rep for high-quality kitchen cutlery
 
 ---
 
