@@ -10,7 +10,7 @@
 ## 🧑‍💼 Professional Experience
 
 **Amazon Associate**  
-*Amazon Fulfillment (OKC1) — Oklahoma City, OK | Nov 2020 – Present*  
+*Amazon Fulfillment (OKC1) — Oklahoma City, OK | Nov 2020 – Mar 2026  
 - Served as Amnesty Backup Quarterback for safety, logistics, and real-time robotics monitoring  
 - Onboarded new associates and maintained top 5% performance metrics  
 - Legally accountable IRDR Count Associate; specialized in inventory reconciliation and audits  
