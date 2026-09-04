@@ -40,6 +40,7 @@ Oklahoma Medical Marijuana Authority — Apr 2024 – Present
 **Logistics Specialist**  
 Bennys Buds LLC - Mar 2026 - Sept 2026
 - As Head Grower, cultivated from teens to harvest. Business to business coordination while managing other hired credentialed crews. Experienced in using grow equipment and sanitation practices.
+
 *Cadillac Cannabis LLC — Apr 2024 – Jan 2025
 - Created invoices, processed raw cannabis inside lab, and delivered to rural/urban dispensaries  
 
