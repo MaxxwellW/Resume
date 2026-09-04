@@ -48,9 +48,9 @@ Bennys Buds LLC - Mar 2026 - Sept 2026
 *Gold Rush Premium Extracts / C3E Management LLC — Apr 2024 – Present*  
 - Represented lab distributing products statewide to thousands of Oklahoma patients  
 
-**UberEATS Driver**  
+**Rideshare Driver**  
 *Uber — Oklahoma, OK | Apr 2021 – Present*  
-- Delivered meals and essentials across Oklahoma with safety and professionalism  
+- Deliver quality assurance driven through safe driving and professionalism on the road across Oklahoma  
 
 **Cutco Sales Representative**  
 *Vector Marketing — Stillwater, OK | Apr 2018 – Jun 2019*  
