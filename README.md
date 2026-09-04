@@ -31,14 +31,16 @@
 
 ### Freelance & Contract Work
 
-*Credentialed Compliance and Quality Assurance Specialist
-Oklahoma Regulatory Authority — Apr 2024 – Present
+*Credentialed Employee
+Oklahoma Medical Marijuana Authority — Apr 2024 – Present
 • Credentialed professional in regulated product testing and retail operations
 • Experienced in inventory tracking systems (e.g., METRC), quality analysis, and client-focused distribution
 • Successfully passed state compliance audit with zero findings; maintained full adherence to regulatory standards
 
 **Logistics Specialist**  
-*Cadillac Cannabis LLC — Apr 2024 – Present*  
+Bennys Buds LLC - Mar 2026 - Sept 2026
+- As Head Grower, cultivated from teens to harvest. Business to business coordination while managing other hired credentialed crews. Experienced in using grow equipment and sanitation practices.
+*Cadillac Cannabis LLC — Apr 2024 – Jan 2025
 - Created invoices, processed raw cannabis inside lab, and delivered to rural/urban dispensaries  
 
 **Sales Representative**  
